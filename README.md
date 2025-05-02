@@ -1,1 +1,2 @@
-Electro AK is hair to help you
+Electro AK is hare to help you
+Electronics repairing 
